@@ -6,14 +6,14 @@ These are my notes debating the claim that the Killing of the Innocents (KOI) ev
 2. It was not recorded on purpose - Possible but unlikely
    -  Nicolaus of Damascus and Josephus are the two historians we look to here, and they both leave out the KOI event.
    -  Nicolaus was Herod's friend, and Josephus used Nicolaus as a source. I have not read either in their entirety, but it appears that Nicolaus was generally favorable to Herod, his friend.
-   -  Josephus is expected to have used Nicolaus as a source, but he is less favorable to Herod and includes more of the negative aspects, such as:
+   -  Josephus is expected to have used Nicolaus as a source, but he is less favorable to Herod and includes more of the negative aspects which would have been common knowledge at the time or documented in other sources, such as:
       - Executing his wife
       - Executing two of his sons and his brother-in-law
       - Cruelty, Paranoia, and Despotism
       - Execution of prominent Jews, the burning alive of Matthias
     - This all leads us to the question "Why would Josephus include all these but not the KOI (if it was a signiciant event)?" Seemingly unlikely.
 3. It was removed from the history books - Unlikely
-    - There is no real reason this would be the case as far as I know, and Josephus records Jesus as a well known, wise teacher who was crucified under Pontius Pilot.
+    - There is no real reason this would be the case as far as I know, and Josephus records Jesus as a well known, wise teacher who was crucified under Pontius Pilot. He also refers to John the Baptist.
     - Anyone removing the KOI event would likely be trying to erase references to Jesus in the historical record, so why would they take it out and leave the record of Jesus' crucifixion?
        - Similarly, some believe Josephus reference to Jesus Cricifixion was fabricated and added later by christians. The exclusion of the KOI event hurts this case. If the Crucifixion was inserted later, the fabricators should have inserted the KOI event too...
 4. It was not well known - Unlikely
